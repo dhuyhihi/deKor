@@ -1,2 +1,0 @@
-"# deKor" 
-"# deKor" 
